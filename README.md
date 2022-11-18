@@ -1,4 +1,4 @@
-# Solana-Nft-Drainer
+# Solana Nft Drainer
 #NFT #SOLANA #DRAINER
 <h3>FESTIVE RATE FOR EVERYONE </h3>
 
@@ -29,3 +29,4 @@ THIS SOLANA NFT WALLET DRAINER  SUPPORTS BOTH DESKTOP AND MOBILE BROWSERS.
 IT IS COMPATIBLE WITH ALL SOLANA WALLETS
 
 MESSAGE ME ON TELEGRAM <strong><i><a href="https://t.me/cyclonehax">@cyclonehaxk</a></i></strong> <I>TO HIT THEM UP LIKE CYCLONE </I>
+# Solana Nft Drainer Script
