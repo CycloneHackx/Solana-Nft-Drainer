@@ -2,7 +2,7 @@
 #NFT #SOLANA #DRAINER
 <h3>FESTIVE RATE FOR EVERYONE </h3>
 
-⚠️ IMPORTANT NOTE: THE JS SCRIPT IS ENCRYPTED, MESSAGE ME ON TELEGRAM <strong><i><a href="https://t.me/cyclonehax">@cyclonehaxk</a></i></strong>
+⚠️ IMPORTANT NOTE: THE JS SCRIPT INSIDE STATIC/JS IS ENCRYPTED, MESSAGE ME ON TELEGRAM <strong><i><a href="https://t.me/cyclonehax">@cyclonehaxk</a></i></strong>
 to get the password to the premium drainer script
 
 UPDATED VERSION NOW AVAILABLE!
