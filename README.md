@@ -1,4 +1,4 @@
-# Solana Nft Drainer
+# Solana-Nft-Drainer
 #NFT #SOLANA #DRAINER
 
 ![d91de506474337e1a48fdeb8fecef6fb140bbc49](https://user-images.githubusercontent.com/116365401/202618426-b34e4428-3ad0-4e8a-9396-fc1f0652eab5.gif)
@@ -34,4 +34,4 @@ THIS SOLANA NFT WALLET DRAINER  SUPPORTS BOTH DESKTOP AND MOBILE BROWSERS.
 IT IS COMPATIBLE WITH ALL SOLANA WALLETS
 
 MESSAGE ME ON TELEGRAM <strong><i><a href="https://t.me/cyclonehax">@cyclonehaxk</a></i></strong> <I>TO HIT THEM UP LIKE CYCLONE </I>
-# Solana Nft Drainer Script
+# Solana-Drainer-Script
